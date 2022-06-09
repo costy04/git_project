@@ -1,1 +1,1 @@
-adaugam o schimbare
+adaugam o schimbare.
